@@ -1,0 +1,1 @@
+# SnapFocus-AI
